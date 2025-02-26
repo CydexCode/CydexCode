@@ -24,7 +24,7 @@ Our expert team collaborates on **AI-driven applications, cloud computing, and e
 ---
 
 ## 📢 Connect with Us  
-🌐 **Website**: [CydexCode Links](https://linktr.ee/cydexcode)  
+🌐 **Website**: [CydexCode Links](https://www.cydexcode.com/)  
 📞 **Phone**: +61 400 576 529  
 📍 **Headquarters**: Brisbane, Queensland  
 🏢 **Founded**: 2020  
